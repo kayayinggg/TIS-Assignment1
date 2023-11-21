@@ -1,1 +1,1 @@
-# industry-talk-section-5-group-6
+# Industry talk-section-5-group-6
